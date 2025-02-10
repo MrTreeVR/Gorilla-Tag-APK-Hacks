@@ -1,1 +1,1 @@
-Theses are working apks for gorilla tag taht are hacked
+Theses are working apks for gorilla tag that are hacked
